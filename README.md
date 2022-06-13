@@ -1,7 +1,7 @@
 #### Welcome To The Albino NFT & Gamming 
 ![Welcome To  Albino NFT & Gamming ](https://static.vecteezy.com/system/resources/previews/000/540/663/original/vector-welcome-banner-alphabet-sign-marquee-light-bulb.jpg)
 
-**Albino (ABO) is not just another typical cryptocurrency added to the plethora of coins and tokens already available yet generates minimal value to its users, investors, and community. The BEP-20 token is the brainchild of a visionary team that came together to develop and release a sustainable smart contract token to the crypto world. The team members' bubbling passion for change was channeled into designing the full-on-chain DeFi liquidity protocol that can be seamlessly integrated with a broad spectrum of digital services.
+**Albino (ABO) is not just another typical cryptocurrency added to the plethora of coins and tokens already available yet generates minimal value to its users, investors, and community. The BEP-20 token is the brainchild of a visionary team that came together to develop and release a sustainable smart contract token to the crypto world. The team members' bubbling passion for change was channeled into designing the full-on-chain DeFi liquidity protocol that can be seamlessly integrated with a broad spectrum of digital services.**
 
 **We envision changing the perspective people have about cryptocurrency, and we believe our well-defined roadmap and tokenomics will help us achieve our objectives in a shorter period. The popularity of the token will then be leveraged to expand the social initiative portfolio and propagate our agenda throughout the world.
 Join us to promote the positive change you want to see in the world.**
