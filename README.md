@@ -1,7 +1,7 @@
-#### Welcome To  Albino NFT & Gamming 
+#### Welcome To The Albino NFT & Gamming 
 ![Welcome To  Albino NFT & Gamming ](https://static.vecteezy.com/system/resources/previews/000/540/663/original/vector-welcome-banner-alphabet-sign-marquee-light-bulb.jpg)
 
-Albino is a part of an international community of the globally decentralized ecosystem and the first ever smart contract marketing matrix plan of the Polygon matic blockchain.
+**Albino is a part of an international community of the globally decentralized ecosystem and the first ever smart contract marketing matrix plan of the Polygon matic blockchain.
 
 
 
